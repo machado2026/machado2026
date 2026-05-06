@@ -12,6 +12,12 @@ Meu nome é Eduardo Machado Dos Santos
 
 - @eduardo_ftr
 
-- ![](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExY2o2eDRtaG9kbjBoemNmMTlyaGNhMmJtcWxvajJodHFod3k5a3FmbiZlcD12MV9naWZzX3NlYXJjaCZjdD1n/oWjyixDbWuAk8/giphy.gif)
-- ![](https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3Nm8wZGswdWp6aXAyNjY2YWg1M2VmdzVnbHkxb3Njam8yZXE2amV5dyZlcD12MV9naWZzX3NlYXJjaCZjdD1n/xUPGck52i1pdzp4RKU/giphy.gif)
-- ![](https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3YXlvaTd0OWFxazc1cWFybGZ1ZzE5bm5oemo2Z3RmbGE4b2RsNzNvcyZlcD12MV9naWZzX3NlYXJjaCZjdD1n/X8VKbMOjoFm7LhyEIZ/giphy.gif)
+-![](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExY2o2eDRtaG9kbjBoemNmMTlyaGNhMmJtcWxvajJodHFod3k5a3FmbiZlcD12MV9naWZzX3NlYXJjaCZjdD1n/oWjyixDbWuAk8/giphy.gif)
+-![](https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3Nm8wZGswdWp6aXAyNjY2YWg1M2VmdzVnbHkxb3Njam8yZXE2amV5dyZlcD12MV9naWZzX3NlYXJjaCZjdD1n/xUPGck52i1pdzp4RKU/giphy.gif)
+-![](https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3YXlvaTd0OWFxazc1cWFybGZ1ZzE5bm5oemo2Z3RmbGE4b2RsNzNvcyZlcD12MV9naWZzX3NlYXJjaCZjdD1n/X8VKbMOjoFm7LhyEIZ/giphy.gif)
+-![](https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3eGEzdzJodHFnamt0bHpoY2tjd29rM3poZWViNG82bnM4OWtvZDZ0eiZlcD12MV9naWZzX3NlYXJjaCZjdD1n/M71t3tYLRloNwuQ20z/giphy.gif) 
+-![](https://media1.tenor.com/m/CFlT3Zlwz6YAAAAd/good-night.gif)
+-![](https://media.tenor.com/6_udHfTAGigAAAAM/son-son-im-crine.gif)
+-![](https://media.tenor.com/CDO0-C0Uv88AAAAM/mario-smg4.gif)
+-![](https://media.tenor.com/rTFOHlr02A0AAAAM/luigi-meme-luigi.gif)
+-![](https://media.tenor.com/R1U76Ds4-kUAAAAM/peppa-pig-meme-peppa-pig.gif)
